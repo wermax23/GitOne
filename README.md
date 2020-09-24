@@ -1,2 +1,2 @@
-# GitOne
+
 ## Hello World!
