@@ -1,6 +1,6 @@
 # SUPER
 ## Ga ga!
-HHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH
+
 ghjgjgit
 Thursday
 !
